@@ -1,1 +1,1 @@
-# Encyclop-die-de-la-MAison-Rustique-du-XIXe-si-cle
+# Encyclopédie de la Maison Rustique du XIXe Siècle
